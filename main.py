@@ -1,0 +1,1 @@
+Cia nienko nieara ir nebus
